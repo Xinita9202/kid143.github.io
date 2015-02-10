@@ -22,3 +22,9 @@ tags: [前沿]
 [**【大脑快报007】偏见游戏 & 神经科学上战场 & 最火最潮的大脑黑客技术**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=202274179&idx=1&sn=001b4713fb4d013daf056957dd639f4c#rd)
 
 [**【大脑快报008】认知提高还是损耗& 多巴胺的新发现& 大脑抗干扰**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=202984367&idx=1&sn=ce040e22aefb323eeededbba9007490c#rd)
+
+[**【大脑快报009】iPhone已成为自我的一部分？**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=203217916&idx=1&sn=15e1289fc6c0904d9f8a5c7ad1dd1470#rd)
+
+[**【大脑快报010】注意力&提升记忆&文化大脑**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=203346452&idx=1&sn=3f3360c0ddf563892f32fcace268d9c8#rd)
+
+[**【大脑快报011】虚拟现实的黎明&爱笑的好处**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=203514804&idx=1&sn=8320e442c1b76347f80f22af72f0e91c#rd)

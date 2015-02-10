@@ -43,3 +43,5 @@ tags: [专栏]
 [**【扬名专栏017】别以为小孩不懂人情世故**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=201745860&idx=1&sn=90aa317e93379e58b4dbfeed0b3e1f21#rd)
 
 [**【扬名专栏018】数位时代的认知**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=202852983&idx=1&sn=cfe01cdbde0ba0b9ffac3524ac9c1c93#rd)
+
+[**【扬名专栏019】有情调的认知训练效果更好**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=202884013&idx=1&sn=f362a82217b72347df2ebab952c6fccf#rd)
