@@ -61,3 +61,25 @@ tags: ['前沿']
 [**【大脑前沿026】为什么你的粉丝屈指可数？**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=203375289&idx=1&sn=6f99c7df1672b7131f480dd722545c5b#rd)
 
 [**【大脑前沿027】是谁让新年计划又落空？**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=203349590&idx=1&sn=b2c9cf4e9016f104eb800c2dbc5dd431#rd)
+
+[**【大脑前沿028】梦境一览**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=203869035&idx=1&sn=9641b0666e880e9a71989fdccaebd09a#rd)
+
+[**【大脑前沿029】伟大的领导者是天生的~**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=203962937&idx=1&sn=d5507390014e6048b239b00f4cd23b42#rd)
+
+[**【大脑前沿030】多巴胺让你爱音乐**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=204035305&idx=1&sn=a82b9ff6bd8723d4e585f4b336a5fbde#rd)
+
+[**【大脑前沿030】大脑中的烟雾**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=204112371&idx=1&sn=4439f1bdcf3ff669255120f213fdf30a#rd)
+
+[**【大脑前沿032】你以为它只是一块汉堡？**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=204253894&idx=1&sn=e391860f15cf5e11bd37863131a36186#rd)
+
+[**【大脑前沿033】大脑的思维衍化**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=204431006&idx=1&sn=aa95a84363e7a9bfaf13501659167ea6#rd)
+
+[**【大脑前沿034】孤独是病**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=204595655&idx=1&sn=85d5efee2d5490b841db422f5592a4cf#rd)
+
+[**【大脑前沿035】媒体网络冲击你大脑**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=204763112&idx=1&sn=17bfdf2cb5c9473d87a91d59004c3412#rd)
+
+[**【大脑前沿036】战胜自闭症的孩子**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=204810702&idx=1&sn=4cf93173fa17387bc469494e4d2e3411#rd)
+
+[**【大脑前沿037】「自闭症大爆炸」？来点良心科普**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=204836140&idx=1&sn=05902219f26e1024e7bfa3f4527c5d9c#rd)
+
+[**【大脑前沿038】Facebook 知道你大脑的小九九**](http://mp.weixin.qq.com/s?__biz=MzA3Mjk0MTcyNg==&mid=204923411&idx=1&sn=665ca3c018e8caff52b0ada80b172d5f#rd)
